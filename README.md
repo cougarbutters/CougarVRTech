@@ -1,4 +1,4 @@
-- 👋 Hi, I’m @CougarVRTech
+- 👋 Hi, I’m @cougarbutters
 - 👀 I’m interested in coding stupid things
 - 🌱 I’m currently learning nothing
 - 💞️ I’m looking to collaborate on nothing
